@@ -7,7 +7,7 @@ Introduction
 FP Markets is a well-established forex and CFD broker known for offering a wide range of financial instruments, advanced trading platforms, and competitive trading conditions. Founded in 2005 and regulated by multiple financial authorities, FP Markets has built a reputation as a reliable broker for traders worldwide. In this review, we will assess its latest features, regulatory standing, trading conditions, and user feedback to determine if it remains a strong option in 2025.
 
 
-![image]()
+![image](https://github.com/Broker-review/FPmarkets-review/blob/acade6bd6d19b5a8731e0fd3abe6c47b010d449c/First_Prudential_Markets_logo.jpg)
 
 Key Features and Updates in 2025
 --------------------
